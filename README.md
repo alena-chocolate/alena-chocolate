@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there, I`m Alena Kudekova - aka alena-chocolate 👋
 
 <!--
 **alena-chocolate/alena-chocolate** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
